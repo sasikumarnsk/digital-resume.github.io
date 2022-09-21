@@ -1,1 +1,0 @@
-# digital-resume.github.io
